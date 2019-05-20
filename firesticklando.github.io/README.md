@@ -1,1 +1,0 @@
-# firesticklando.github.io
